@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @kindfield
+- 👀 I’m interested in everything
+- 🌱 I’m currently learning web development
+- 📫 How to reach me: Telegram @pricedead
